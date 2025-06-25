@@ -1,1 +1,1 @@
-# 3boyutlunesnetan-ma
+# 3boyutlunesnetanıma
